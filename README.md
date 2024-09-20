@@ -1,4 +1,4 @@
-# DANIEL ROJO COMAS ![Este contenido se mostrará cuando la imagen no se pueda cargar, como texto alternativo](https://ongpng.com/wp-content/uploads/2023/09/Shaquille-O_Neal-meme-face-.png "Daniel el Travieso")
+# DANIEL ROJO COMAS ![Este contenido se mostrará cuando la imagen no se pueda cargar, como texto alternativo](https://ongpng.com/wp-content/uploads/2023/09/Shaquille-O_Neal-meme-face-.png "Por si te lo preguntabas, no soy yo")
 ---
 - *Fecha de nacimiento:* 10-01-2002
 - *Lugar de residencia:* Miami Platja
